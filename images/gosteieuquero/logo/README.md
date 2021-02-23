@@ -1,0 +1,1 @@
+## Gosteieuquero -  - Todos direitos reservados.
